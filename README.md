@@ -2,8 +2,8 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...htr
-- 11111655396534
+- 📫 How to reach me ...htr8
+- 11111655396534kll
 423
 <!---
 davalinasosalina/davalinasosalina is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
