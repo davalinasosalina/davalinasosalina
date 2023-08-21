@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...htr8j e
-- 11111655396534kllgwergh oi feraer utydut
+- 11111655396534kllgwergh oi feraer utydut werg
 423v,hjjvjh,ty u
 <!---ertu
 davalinasosalina/davalinasosalina is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
