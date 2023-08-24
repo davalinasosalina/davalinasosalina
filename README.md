@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @davalinasosalina
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ... kuyr
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... kfyu
 - 📫 How to reach me ...htr8j e
 - 11111655396534kllgwergh oi feraer utydut wergr th
 423v,hjjvjh,ty u
