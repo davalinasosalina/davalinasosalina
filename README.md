@@ -2,7 +2,7 @@ h- 👋 Hi, I’m @davalinasosalina
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ... kuyr
 - 💞️ I’m looking to collaborate on ... kfyu
-- 📫 How to reach me ...htr8j ew 5w rth ferertsh stht 6456tryrt
+- 📫 How to reach me ...htr8j ew 5w rth ferertsh stht 6456tryrtt rew
 - 11111655396534kllgwergh oi feraer utydut wergr thkty
 423v,hjjvjh,ty u
 <!---ertu
